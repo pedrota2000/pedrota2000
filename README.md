@@ -1,4 +1,4 @@
-## 👋 Hi, I'm Pedro Tarancón
+## 👋 Hi, I'm Pedro Tarancón-Álvarez
 
 🎓 PhD student in theoretical physics at the Institut de Ciències del Cosmos (ICCUB), Universitat de Barcelona.
 
